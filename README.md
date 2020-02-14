@@ -1,2 +1,0 @@
-# EDIT-
-SIES  CLG FEST
